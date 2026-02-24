@@ -1,0 +1,3 @@
+The idea for this week programming. As part of the summit we were talking about content we could do. Something we discussed was the idea of doing a weekly podcast where some of us record things we did in a week - interesting problems we worked on, things we read, things we learned, or things we were inspired by - then we would sit down and record a blog post based on conversation.
+
+We're still discussing whether to go ahead with that. I'm kind of just interested to try out the practice of taking some more notes about these sorts of things throughout the week, and perhaps turning that into a blog post if it's interesting.
