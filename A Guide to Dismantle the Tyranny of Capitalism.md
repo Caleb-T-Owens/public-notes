@@ -1,0 +1,1 @@
+Capitalism is a crewel system that only rewards individuals and organisations based on the value they provide to others. The Steadfast Order of the Righteous Lamb as a representative of the people, in the absence of the Prince's leadership should concern themselves with 
